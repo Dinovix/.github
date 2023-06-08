@@ -1,4 +1,4 @@
-<img src="" alt="Banner" width="870px"/>
+<img src="https://github.com/Dinovix/.github/blob/main/profile/Github%20banner.png" alt="Banner" width="870px"/>
 
 We are DINOVIX team! We build exceptional digital experiences ! And make enhance growth! 🥇
 
