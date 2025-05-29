@@ -88,8 +88,8 @@ We are DINOVIX team! We build exceptional digital experiences ! And make enhance
 
 [Email](contact@dinovix.com)
 
-[WhatsApp](https://wa.me/+15512985418?text=Hi%20Dinovix,%20I%20want%20you%20to%20help%20me%20with...)
+[WhatsApp](https://wa.me/+237652593008?text=Hi%20Dinovix,%20I%20want%20you%20to%20help%20me%20with...)
 
 ### 📞 Call!
 
-[+1 (551) 298-5418](https://call.whatsapp.com/voice/OFlwZDzpB2ot6wCvYiargN)
++237 652 593 008
